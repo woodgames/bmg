@@ -1,0 +1,2 @@
+# bmg
+bad.moslem.gangster
